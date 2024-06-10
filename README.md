@@ -14,5 +14,5 @@ Aulas de informatica escola perdrina pires zadra, serie 3 ano A
 
  - como entrar em contrato: 00001105706369sp@al.educacao.sp.gov.br
 
- ![](https://media1.tenor.com/m/Sk3ybYkV5AEAAAAC/sukuna-vs-gojo.gif)
+ ![](https://media1.tenor.com/m/kmzPAh2JJf0AAAAd/jjk-manga.gif)
  
