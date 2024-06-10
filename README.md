@@ -13,3 +13,6 @@ Aulas de informatica escola perdrina pires zadra, serie 3 ano A
  - voce pode entrar em contato comigo para: conversar sobre o mundo do futebol e oportunidades 
 
  - como entrar em contrato: 00001105706369sp@al.educacao.sp.gov.br
+
+ ![](https://media1.tenor.com/m/Sk3ybYkV5AEAAAAC/sukuna-vs-gojo.gif)
+ 
